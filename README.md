@@ -1,1 +1,1 @@
-# larissathayna
+tenho 15 anos sou de uma cidade pequena do parana chamada lindoeste nasci aqui e moro aqui ate hoje, sou uma pessoa dedicada e persistente não decisto facil, gosto de animais e da natureza gosto de coisas novas. 
